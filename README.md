@@ -1,1 +1,1 @@
-![ScreenShot](http://cdn4.iconfinder.com/data/icons/very_emotional_emoticons_lazy/128x128/128%20(20).png)
+![ScreenShot](http://octodex.github.com/images/steroidtocat.png)
